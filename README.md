@@ -1,1 +1,0 @@
-# Queen-City-Sabermetrics
